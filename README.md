@@ -1,4 +1,3 @@
-# DYLAN DONCASTER
 
 ## About me:
 
